@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced dydx trading bot Addon | liquidity-provision + liquidity-pool-analysis, the #1 dydx trading bot. Includes liquidity-provision and
 
 
 
